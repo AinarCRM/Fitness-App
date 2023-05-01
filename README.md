@@ -26,3 +26,5 @@ In addition, it is completely responsive and thus serves for all platforms. Usin
 
 > "Let's not talk about the monitors, because they are very good at what they do. In my opinion, what stands out about this place is the equipment it offers, very good and comfortable machines that are also functional. It is a pleasure to train here." - Nana Yaa Dankwa
 
+> "Thanks to the trainers on this site, I have been able to improve my physical fitness and my self-esteem. The coaches are very pleasant and attentive. 10/10!!!" - Daniel Vinyo
+
